@@ -9,9 +9,11 @@
 I enjoy working on:
 
 - ⚡ High-performance backend systems
-- 🤖 Machine learning and NLP
 - ☁️ DevOps & Cloud Engineering
+- 🤖 Machine learning and NLP
 - 🧩 Random experiments that turn into projects
+
+Check out my Portfolio [here](https://yuyudhistira.my.id)
 
 ---
 
