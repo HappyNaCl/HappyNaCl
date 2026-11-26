@@ -23,4 +23,4 @@ More about me and the stuff I've made at [yuyudhistira.my.id](https://yuyudhisti
 
 ## Contact
 
-Email works best: [yudhistira.fadly@gmail.com](mailto:yudhistira.fadly@gmail.com). I'm also on [X](https://x.com/_youyou13) and [Instagram](https://instagram.com/h4ppyyuyu), or you can add me on Discord as `._yuyu`.
+Email works best: [yudhistira.fadly@gmail.com](mailto:yuyudhistira0@gmail.com). I'm also on [X](https://x.com/_youyou13) and [Instagram](https://instagram.com/h4ppyyuyu), or you can add me on Discord as `._yuyu`.
